@@ -1,3 +1,5 @@
+![66410516_2308 w022 n003 1030B p15 1030](https://github.com/user-attachments/assets/2ca72486-e136-49dc-8d83-27f0f1c1657c)
+
 # Dicee
 
 ## The App Goal
